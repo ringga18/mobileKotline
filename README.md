@@ -1,1 +1,1 @@
-pinjam laptop putra 
+ 
